@@ -20,4 +20,4 @@
 
   - Сериал -- [*Книжный магазин Блэка*](/https://en.wikipedia.org/wiki/Black_Books "perfect")
   
-  
+ ![black_books_grapes_of_wrath](https://user-images.githubusercontent.com/35367037/35472196-e048235a-037b-11e8-898d-8202f65b88ff.jpg)
