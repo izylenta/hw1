@@ -21,3 +21,10 @@
   - Сериал -- [*Книжный магазин Блэка*](/https://en.wikipedia.org/wiki/Black_Books "perfect")
   
  ![black_books_grapes_of_wrath](https://user-images.githubusercontent.com/35367037/35472196-e048235a-037b-11e8-898d-8202f65b88ff.jpg)
+
+3. Литература 
+  - Любимая книга -- [*Теннисные мячики небес*](/https://en.wikipedia.org/wiki/The_Stars%27_Tennis_Balls "modern Monte Cristo")
+  - Любимый писатель -- [*Стивен Фрай*](/https://en.wikipedia.org/wiki/Stephen_Fry "bid old fart") 
+
+4. Прочее
+  - YouTube как ежедневная рутина 
