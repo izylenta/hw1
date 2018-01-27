@@ -27,10 +27,9 @@
   - Любимый писатель -- [*Стивен Фрай*](/https://en.wikipedia.org/wiki/Stephen_Fry "bid old fart") 
 
 4. Прочее
-  - YouTube как ежедневная рутина 
-  
-  ![maxresdefault](https://user-images.githubusercontent.com/35367037/35472286-925f18cc-037d-11e8-88e1-34dfefbf40a1.jpg)
-
   - Наслаждаюсь титрами после фильмов
   - Знакомлюсь с людьми на улице
   - Не воспринимаю ничего серьезно
+  - YouTube как ежедневная рутина 
+  
+  ![maxresdefault](https://user-images.githubusercontent.com/35367037/35472286-925f18cc-037d-11e8-88e1-34dfefbf40a1.jpg)
